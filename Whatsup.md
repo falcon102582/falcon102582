@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @falcon102582
+- 👀 I’m interested in challenging myself
+- 🌱 I’m currently learning web development
+- 💞️ I’m looking to collaborate on challenging works
+- 📫 How to reach me ---> falcon102582@gmail.com
